@@ -1,0 +1,4 @@
+- Hi I am Joe 
+- I have a youtube channel go check it out: https://www.youtube.com/channel/UCJMMjfAVzHHmB5DylaYCs6Q
+- MINECRAFT ALL THE WAYYYY
+- Also i wanna learn javascript.
